@@ -1,0 +1,4 @@
+Whisk together soy sauce, vinegar, tomato ketchup, red chilli powder, garlic paste, salt in a bowl and toss the chicken lollipops in it. Marinade for half an hour.
+In the same bowl, add cornflour, all purpose flour, rice flour, egg and ginger paste and mix well to create a thick batter and coat the lollipops in it.
+Heat about two inches oil in a wok or kadhai to 350F/ 176C. Add the battered lollipops one by one to the oil in such a way that the meat is at the bottom and the bone is on top (watch the video to see how I do it). Fry these on medium high heat till golden brown – approx 3-4 minutes.
+Take these out on a tissue paper to blot out any excess oil and serve hot with schezwan sauce.
